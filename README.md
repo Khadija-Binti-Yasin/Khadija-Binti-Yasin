@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **khadijabinteyasin91827@gmail.com**
 
-- ⚡ Fun fact **I am passionate about nutrition and a healthy lifestyle.**
+- ⚡ Fun fact **I’m enthusiastic about fitness, clean eating, and overall well-being.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
